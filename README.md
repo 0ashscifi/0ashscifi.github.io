@@ -1,1 +1,0 @@
-# 0ashscifi.github.io
